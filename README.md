@@ -7,3 +7,7 @@ Também tive o aprendizado sobre as rotas das páginas.
 Umprojeto bem interessante para ir fundamentando o aprendizado de React e também ir aprofundando.
 
 
+
+
+https://github.com/PauloVtl/opcao-filmes/assets/94381670/353eb0dc-d2cd-432d-a3f8-9e802a7b9ac1
+
